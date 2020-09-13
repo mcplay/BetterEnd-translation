@@ -1,0 +1,1 @@
+BetterEnd-translation
